@@ -1,3 +1,7 @@
+---
+title: Bible Commentary
+---
+
 # Bible Commentary
 
 ## Gloria in Excelsis Deo
@@ -5,7 +9,8 @@ The pitiful inklings of one human could never do justice to the magnificence and
 
 ## Index
 ### Overview
-- [Introduction](commentary/overview/overview)
-- [Statement of Faith](commentary/overview/statement-of-faith)
+- [Introduction](commentary/overview/overview.md)
+- [Statement of Faith](commentary/overview/statement-of-faith.md)
+- [Writing Strategy](commentary/overview/writing-strategy.md)
 ### Old Testament
-- [Genesis](commentary/books/old-testament/torah/genesis/overview)
+- [Genesis](commentary/books/old-testament/torah/genesis/overview.md)

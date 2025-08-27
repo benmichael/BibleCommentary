@@ -1,2 +1,5 @@
-# Statement of Faith
+---
+title: Statement of Faith
+---
 
+# Statement of Faith
