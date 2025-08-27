@@ -1,6 +1,7 @@
 title: Bible Commentary
 url: "https://benmichael.github.io"
 baseurl: "/BibleCommentary"
+theme: midnight
 
 plugins:
   - jekyll-sitemap
