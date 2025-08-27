@@ -1,0 +1,9 @@
+title: Bible Commentary
+url: "https://benmichael.github.io"
+baseurl: "/BibleCommentary"
+
+plugins:
+  - jekyll-sitemap
+  - jekyll-seo-tag
+  - jekyll-redirect-from
+  - jekyll-relative-links
