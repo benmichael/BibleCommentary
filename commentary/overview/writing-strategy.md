@@ -1,3 +1,7 @@
+---
+title: Writing Strategy
+---
+
 # Writing Strategy
 
 In writing a Bible commentary, there are many different approaches which can be taken. There are two which I would like to employ in this study.
