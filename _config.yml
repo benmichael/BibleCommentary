@@ -1,7 +1,8 @@
 title: Bible Commentary
 url: "https://benmichael.github.io"
 baseurl: "/BibleCommentary"
-remote_theme: pages-themes/midnight@v0.2.0
+remote_theme: just-the-docs/just-the-docs
+color_scheme: dark
 
 plugins:
   - jekyll-sitemap
