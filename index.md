@@ -1,3 +1,7 @@
+---
+title: Bible Commentary
+---
+
 # Bible Commentary
 
 ## Gloria in Excelsis Deo
