@@ -39,7 +39,7 @@ Okay, so a bit of a back story into what happened after David, and the northern 
 * *From here we’ll follow the journey of the northern country of Israel*  
 * Jeroboam erects two golden calves to represent God 🤦  
 * So after Jeroboam, Israel goes through a list of kings.  
-  *Anybody know how many kings?* 20  
+  *Anybody know how many kings?* 19  
   The book of kings lists them as good or bad based on whether they worshiped God alone, did they cleanse Israel of idolatry, did they remain faithful to the covenant.  
   *How many do you think ended up on the good side of that list?* 0/19 (Judah 8/20), which is why their judgement was slower in coming.  
 * We now catch up with Jeroboam the second, the 13th in this messy line, which is where Hosea comes in, he is also the last king of Israel before Israel’s death spiral before exile at the hands of the Assyrians. *Let’s read 2 Kings 14:23-28*
