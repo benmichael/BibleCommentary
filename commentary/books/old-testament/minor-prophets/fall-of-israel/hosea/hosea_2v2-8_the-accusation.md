@@ -1,4 +1,4 @@
-# Part 2: The Accusation — "Plead with Your Mother" (Hosea 2:2–8)
+# Hosea 2:2-8 - The Accusation — "Plead with Your Mother"
 
 ## Read
 
