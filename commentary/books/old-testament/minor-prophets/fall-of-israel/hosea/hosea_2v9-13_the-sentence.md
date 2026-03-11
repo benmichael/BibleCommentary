@@ -1,6 +1,6 @@
-## Hosea 2:9–13 - The Sentence
+# Hosea 2:9–13 - The Sentence
 
-### Read
+## Read
 
 > *"Therefore I will take back my grain in its time, and my wine in its season, and I will take away my wool and my flax, which were to cover her nakedness."* — Hosea 2:9
 
@@ -12,7 +12,7 @@
 
 > *"And I will punish her for the feast days of the Baals when she burned incense to them and adorned herself with her ring and jewelry, and went after her lovers and forgot me, declares the LORD."* — Hosea 2:13
 
-### Study
+## Study
 
 The deprivation described in verses 9–12 is not vindictive but educative. God takes back what He gave so that Israel will learn who the real giver was. It follows the pattern of the prodigal son: the father lets the son go and experience the consequences, so that the son will eventually come to his senses. *(Routledge)*
 
