@@ -18,7 +18,7 @@ The deprivation described in verses 9–12 is not vindictive but educative. God 
 
 God's approach here is to make the idols fail. He hedges Israel's way with thorns (v. 6) so that pursuing the Baals becomes frustrating and fruitless. The theological point is sharp: God sometimes allows our false gods to disappoint us, so that we return to Him. The failure of the idols is itself an act of grace. *(Stuart)*
 
-God is completely within His rights as the just judge to let us allow our idols to consume us and lead us to hell. Or he may, in his mercy, strip our idols from us to bring our attention back to him. We all have things we love and enjoy, I am so blessed to have this lovely house in this lovely estate. But if I give it a higher place in my heart than God, then oh please Lord, strip it from me, that my eyes might be turned back to you, and that I may be saved from following the wide road to distruction.
+God is completely within His rights as the just judge to let us allow our idols to consume us and lead us to hell. Or he may, in his mercy, strip our idols from us to bring our attention back to him. We all have things we love and enjoy, I am so blessed to have this lovely house in this lovely estate. But if I give it a higher place in my heart than God, then oh please Lord, strip it from me, that my eyes might be turned back to you, and that I may be saved from following the wide road to destruction.
 
 **10.** In verse 11, God says He will put an end to Israel's feasts, new moons, Sabbaths—their religious calendar. But these were things God Himself commanded (Leviticus 23). Why would God shut down His own institutions of worship?
 
@@ -26,6 +26,6 @@ God is completely within His rights as the just judge to let us allow our idols 
 
 > **Leader's Note:** The key insight is that Israel's worship had become syncretistic—mixing Yahweh worship with Baal worship—and hypocritical, maintaining religious forms while living in covenant violation. God would rather have no worship at all than worship that is a lie.
 
-> **Uncomfortable thought:** There is an easy correlation with African Zionism, which we see all around us. But there is a far less comfortable correlation with us, as we sit here in our nice houses, swimming pools, cars. We mix worship of Yahweh with worship of materialism almost completely subcontiously.
+> **Uncomfortable thought:** There is an easy correlation with African Zionism, which we see all around us. But there is a far less comfortable correlation with us, as we sit here in our nice houses, swimming pools, cars. We mix worship of Yahweh with worship of materialism almost completely subconsciously.
 
 **11.** Verse 13 ends with three devastating words: "and forgot me." Not "rebelled against me" or "defied me"—but "forgot me." Is forgetting God worse than deliberately rejecting Him? What is the difference between active rebellion and slow drift? Which do you think is more common in your own experience, and in the church today?
