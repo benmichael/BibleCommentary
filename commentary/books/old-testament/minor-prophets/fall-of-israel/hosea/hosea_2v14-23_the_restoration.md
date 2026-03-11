@@ -63,3 +63,23 @@ The result of this betrothal is that Israel will "know the LORD" (v. 20). This i
 > The comentator, Douglas Stuart points out that the scope of the restoration is cosmic. It is not merely that Israel is forgiven—creation itself is healed. God makes a covenant with the animals, abolishes war, establishes safety. This points beyond any historical restoration to an eschatological reality—a new creation. (cf. Romans 8:19–21) *(Stuart)*
 
 **19.** Verse 23 reverses every name from chapter 1. "I will sow" (Jezreel), "I will have mercy" (Ruhamah), "You are my people" (Ammi). And how do the people respond? "You are my God." Read 1 Peter 2:10: "Once you were not a people, but now you are God's people; once you had not received mercy, but now you have received mercy." Peter applies this directly to the church. What does it mean for your identity that these words now apply to you?
+
+---
+
+# Bringing It Home
+
+## The Shape of the Whole Chapter
+
+Hosea 2 moves through three great movements. First, the **accusation**: God names what has gone wrong, openly and honestly. Second, the **discipline**: God strips away the false supports to create the conditions for return. Third, the **restoration**: God Himself provides everything needed for a new beginning—and more. (Pawson; Routledge)
+
+This pattern—truth, then discipline, then grace—is not unique to Hosea. It is the shape of the gospel itself. In Christ, God names our sin honestly (Romans 3:23), bears its consequences on the cross (Romans 5:8), and provides a new covenant in His blood (Luke 22:20). Hosea 2 is not merely an ancient love story. It is the story.
+
+## Application & Closing Discussion
+
+**20.** Looking at the whole chapter, discuss together: which of the three movements—accusation, discipline, restoration—do you find most challenging? Which is most comforting? Why?
+
+**21.** God's discipline in this chapter is purposeful: He takes things away so that Israel will return. But the culture around us tends to see any experience of loss or hardship as meaningless suffering. How does Hosea 2 reframe the way we understand difficult seasons? Can you distinguish between purposeless suffering and God's discipline in your own life? What are the markers?
+
+**22.** The chapter ends with a restored covenant formula: "You are my people" … "You are my God." This is the deepest desire of God's heart—mutual belonging. Read 2 Corinthians 6:16: "I will make my dwelling among them and walk among them, and I will be their God, and they shall be my people." Is this your experience of the Christian life—mutual belonging with God? If not, what stands in the way?
+
+**23.** One commentator observes that God's love in Hosea has three faces: it cannot let you off (He confronts sin), it cannot let you go (He pursues relentlessly), and it cannot let you down (He restores completely). (Pawson) Which of these three faces do you most need to hear about right now?
